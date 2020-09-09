@@ -1,4 +1,3 @@
-### Hi there 👋
 # Luis Costa
 ## Eu só estava curioso para ver isso aqui
 ### Com o tempo eu vou editando 
